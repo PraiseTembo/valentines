@@ -1,2 +1,2 @@
-# valentines
-credits to nigeldblocks
+Valentines!
+feel free to copy and share to that special someone
